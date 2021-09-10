@@ -1,7 +1,7 @@
 ## Downtime
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 
-![avatar](https://i.gr-assets.com/images/S/compressed.photo.goodreads.com/books/1324842843l/6430424.jpg)
+![avatar](https://static01.nyt.com/images/2019/04/21/sunday-review/21wittmeyer/21wittmeyer-superJumbo.jpg)
 <br>
 <br>
 
